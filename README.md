@@ -12,4 +12,4 @@ For any other explanation join Iconic LLC's [Discord Server](https://iconicclien
 Thank you! If you like this client star it so we can get more people to download it!
 -Kay
 
-### Iconic LLC
+### [Iconic LLC](https://iconicclient.tk)
